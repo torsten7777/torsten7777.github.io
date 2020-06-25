@@ -8,3 +8,4 @@ Herr der Ringe dreht sich vor allem um Frodo, der den einen Ring zu zerstören h
 * Hat sich überwunden und die Hübscheste im Auenland erobert
 * Hat 13 Kinder
 * Wurde Bürgermeister vom Auenland
+> My mum always said things we lose have a way of coming back to us in the end. If not always in the ways we expect.
